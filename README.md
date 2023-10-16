@@ -1,0 +1,1 @@
+# ikariam-spying-scrapper
